@@ -1,0 +1,1 @@
+# -UgoSmart-OS-Sunucusuz-ok-Platformlu-Ak-ll-Ev-Otomasyon-Merkezi
